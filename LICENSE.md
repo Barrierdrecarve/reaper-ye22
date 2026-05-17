@@ -1,4 +1,4 @@
-# 
+# No-Ban DaVinci Resolve for PC scripts is the best DaVinci Resolve for PC scripts with video-stabilization and title-animation. Safe, reliable, and optimized for maximum
 
 
 
